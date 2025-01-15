@@ -1,5 +1,5 @@
 # 💫 About Me:
-Con 56 años de trayectoria profesional, me encuentro en un continuo proceso de aprendizaje y crecimiento en el ámbito de la Tecnología de la Información. Mi pasión reside en la infraestructura IT, donde mi experiencia aporta solidez y mi entusiasmo impulsa la innovación. Estoy abierto a colaborar en proyectos desafiantes y aportar mi granito de arena para lograr resultados sobresalientes.
+Con 56 años y 25 de trayectoria profesional, me encuentro en un continuo proceso de innovacion y crecimiento en el ámbito de la Tecnología de la Información. Mi pasión reside en la infraestructura IT, donde mi experiencia aporta solidez y mi entusiasmo impulsa la innovación. Estoy abierto a colaborar en proyectos desafiantes y aportar mi granito de arena para lograr resultados sobresalientes.
 
 
 ## 🌐 Socials:
